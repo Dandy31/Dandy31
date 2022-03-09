@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Dandy31
+- 👀 I am interested in video games, football, mixed martial arts, table tennis. I actively follow the IT industry, cryptocurrency and stocks
+- 🌱 I'm currently learning in computer academy "STEP"
+- 📫 How to reach me: danil31work@gmail.com
